@@ -1,6 +1,6 @@
 - im yamps
 - ive watched too much dougdoug and smallant
-- i suck at python if im being honest i took a 2 hour class and know im here
+- i suck at python if im being honest i took a 2 hour class and now im here
 - i like using github to look at cool projects and compare my crappy code to everyones code on here
 - idk where you should reach me but i dont think anyone wants to lol
 - im a guy
